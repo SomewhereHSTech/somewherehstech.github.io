@@ -1,1 +1,0 @@
-# somewherehstech.github.io
